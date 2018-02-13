@@ -14,7 +14,8 @@
 1. [*A Closed and Common Orbit*](https://books.google.com/books?id=34ixCwAAQBAJ) by Becky Chambers (2016)
 1. [*Silver on the Road*](https://books.google.com/books?id=o6OZBgAAQBAJ) by Laura-Ann Gilman (2015)
 1. [*Winter Tide*](https://books.google.com/books?id=Qf4ZDgAAQBAJ) by Ruthanna Emrys (2017)
-1. LOA Ursula K. Leguin
+1. [*The Complete Hainish Novels & Stories](https://www.loa.org/books/554-the-hainish-novels-stories-boxed-set) by Ursula K. Le Guin (2017)
+1. [*The Complete Orsinia*](https://www.loa.org/books/513-the-complete-orsinia) by Ursula K. Le Guin (2016)
 1. [*The Wall of Storms*](https://books.google.com/books?id=EkqKCwAAQBAJ) by Ken Liu (2016)
 1. [*The Delirium Brief*](https://books.google.com/books?id=XGckDwAAQBAJ) by Charles Stross (2017)
 1. [*The Twenty Days of Turin*](https://books.google.com/books?id=L1J8DAAAQBAJ) by Giorgio de Maria (1977; 2017)
