@@ -26,7 +26,7 @@
 
 1. [*Strange Practice*](https://books.google.com/books?id=-K9GvgAACAAJ) by Vivian Shaw (2017)
 1. [*The Odyssey*](https://books.google.com/books?id=PpJYDgAAQBAJ) by Homer (trans. Emily Wilson) (2017)
-1. [*The Grace of Kings*](https://books.google.com/books?id=y4veAwAAQBAJ) (2015)
+1. [*The Grace of Kings*](https://books.google.com/books?id=y4veAwAAQBAJ) by Ken Liu (2015)
 1. [*God's War*](https://books.google.com/books?id=bCapBAAAQBAJ) by Kameron Hurley (2011)
 1. [*Binti*](https://books.google.com/books?id=4jmpCQAAQBAJ) by Nnedi Okorafor (2015)
 1. [*An Unkindness of Ghosts*](https://books.google.com/books?id=oYa4DgAAQBAJ) by Rivers Solomon (2017)
