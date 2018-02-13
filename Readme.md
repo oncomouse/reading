@@ -29,4 +29,4 @@
 1. [*The Grace of Kings*](https://books.google.com/books?id=y4veAwAAQBAJ) (2015)
 1. [*God's War*](https://books.google.com/books?id=bCapBAAAQBAJ) by Kameron Hurley (2011)
 1. [*Binti*](https://books.google.com/books?id=4jmpCQAAQBAJ) by Nnedi Okorafor (2015)
-1. [*An Unkindness of Ghosts*](https://books.google.com/books?id=oYa4DgAAQBAJ) (2017)
+1. [*An Unkindness of Ghosts*](https://books.google.com/books?id=oYa4DgAAQBAJ) by Rivers Solomon (2017)
