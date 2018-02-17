@@ -2,7 +2,7 @@
 
 ## Currently Reading
 
-1. [*The Strange Case of the Alchemist's Daughter*](https://books.google.com/books?id=LicvDQAAQBAJ) by Theodora Goss (2017)
+1. [*Winter Tide*](https://books.google.com/books?id=Qf4ZDgAAQBAJ) by Ruthanna Emrys (2017)
 1. [*Liquid Intelligence*](https://books.google.com/books?id=yUKAAwAAQBAJ) by Dave Arnold (2014)
 
 ## Up Next
@@ -14,7 +14,6 @@
 1. [*The Black Tides of Heaven*](https://books.google.com/books?id=nGR9DQAAQBAJ) by JY Yang (2017)
 1. [*A Closed and Common Orbit*](https://books.google.com/books?id=34ixCwAAQBAJ) by Becky Chambers (2016)
 1. [*Silver on the Road*](https://books.google.com/books?id=o6OZBgAAQBAJ) by Laura-Ann Gilman (2015)
-1. [*Winter Tide*](https://books.google.com/books?id=Qf4ZDgAAQBAJ) by Ruthanna Emrys (2017)
 1. [*The Complete Hainish Novels & Stories*](https://www.loa.org/books/554-the-hainish-novels-stories-boxed-set) by Ursula K. Le Guin (2017)
 1. [*The Complete Orsinia*](https://www.loa.org/books/513-the-complete-orsinia) by Ursula K. Le Guin (2016)
 1. [*The Wall of Storms*](https://books.google.com/books?id=EkqKCwAAQBAJ) by Ken Liu (2016)
@@ -27,6 +26,7 @@
 
 ## Read This Year
 
+1. [*The Strange Case of the Alchemist's Daughter*](https://books.google.com/books?id=LicvDQAAQBAJ) by Theodora Goss (2017)
 1. [*Strange Practice*](https://books.google.com/books?id=-K9GvgAACAAJ) by Vivian Shaw (2017)
 1. [*The Odyssey*](https://books.google.com/books?id=PpJYDgAAQBAJ) by Homer (trans. Emily Wilson) (2017)
 1. [*The Grace of Kings*](https://books.google.com/books?id=y4veAwAAQBAJ) by Ken Liu (2015)
