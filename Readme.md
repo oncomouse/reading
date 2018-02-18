@@ -22,6 +22,8 @@
 1. [*Binti: The Night Masquerade*](https://books.google.com/books?id=wAgsDgAAQBAJ) by Nnedi Okorafor (2018)
 1. [*Simple Forms*](https://books.google.com/books?id=QhJyCwAAQBAJ) by André Jolles (1929; 2017)
 1. [*Company Town*](https://books.google.com/books?id=WbLPCgAAQBAJ) by Madeline Ashby (2016)
+1. [*The Night Ocean*](https://books.google.com/books?id=lx2MDAAAQBAJ) by Paul Le Farge (2017)
+1. [*The Changeling*](https://books.google.com/books?id=rJDbDgAAQBAJ) by Victor LaValle (2017)
 
 ## Read This Year
 
