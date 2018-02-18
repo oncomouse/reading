@@ -3,7 +3,6 @@
 ## Currently Reading
 
 1. [*Winter Tide*](https://books.google.com/books?id=Qf4ZDgAAQBAJ) by Ruthanna Emrys (2017)
-1. [*Liquid Intelligence*](https://books.google.com/books?id=yUKAAwAAQBAJ) by Dave Arnold (2014)
 
 ## Up Next
 
@@ -26,6 +25,7 @@
 
 ## Read This Year
 
+1. [*Liquid Intelligence*](https://books.google.com/books?id=yUKAAwAAQBAJ) by Dave Arnold (2014)
 1. [*The Strange Case of the Alchemist's Daughter*](https://books.google.com/books?id=LicvDQAAQBAJ) by Theodora Goss (2017)
 1. [*Strange Practice*](https://books.google.com/books?id=-K9GvgAACAAJ) by Vivian Shaw (2017)
 1. [*The Odyssey*](https://books.google.com/books?id=PpJYDgAAQBAJ) by Homer (trans. Emily Wilson) (2017)
