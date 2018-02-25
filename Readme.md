@@ -2,14 +2,13 @@
 
 ## Currently Reading
 
-1. [*Winter Tide*](https://books.google.com/books?id=Qf4ZDgAAQBAJ) by Ruthanna Emrys (2017)
+1. [*The Red Threads of Fortune*](https://books.google.com/books?id=wWR9DQAAQBAJ) by JY Yang (2017)
 
 ## Up Next
 
 1. [*The Mirror Empire*](https://books.google.com/books?id=Tls8CgAAQBAJ) by Kameron Hurley
 1. [*The Traitor Baru Cormorant*](https://books.google.com/books?id=7VGNBwAAQBAJ) by Seth Dickinson
 1. [*A Wrinkle in Time*](https://books.google.com/books?id=r119-dYq0mwC) by Madeline L'Engle (1962)
-1. [*The Red Threads of Fortune*](https://books.google.com/books?id=wWR9DQAAQBAJ) by JY Yang (2017)
 1. [*The Black Tides of Heaven*](https://books.google.com/books?id=nGR9DQAAQBAJ) by JY Yang (2017)
 1. [*A Closed and Common Orbit*](https://books.google.com/books?id=34ixCwAAQBAJ) by Becky Chambers (2016)
 1. [*Silver on the Road*](https://books.google.com/books?id=o6OZBgAAQBAJ) by Laura-Ann Gilman (2015)
@@ -27,6 +26,7 @@
 
 ## Read This Year
 
+1. [*Winter Tide*](https://books.google.com/books?id=Qf4ZDgAAQBAJ) by Ruthanna Emrys (2017)
 1. [*Liquid Intelligence*](https://books.google.com/books?id=yUKAAwAAQBAJ) by Dave Arnold (2014)
 1. [*The Strange Case of the Alchemist's Daughter*](https://books.google.com/books?id=LicvDQAAQBAJ) by Theodora Goss (2017)
 1. [*Strange Practice*](https://books.google.com/books?id=-K9GvgAACAAJ) by Vivian Shaw (2017)
