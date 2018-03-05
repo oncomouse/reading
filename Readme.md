@@ -2,7 +2,7 @@
 
 ## Currently Reading
 
-1. [*Silver on the Road*](https://books.google.com/books?id=o6OZBgAAQBAJ) by Laura-Ann Gilman (2015)
+1. [*The Lamb Will Slaughter the Lion*](https://books.google.com/books/about/The_Lamb_Will_Slaughter_the_Lion.html?id=QCu2DQAAQBAJ) by Margaret Killjoy (2017)
 
 ## Up Next
 
@@ -23,7 +23,6 @@
 1. [*The Night Ocean*](https://books.google.com/books?id=lx2MDAAAQBAJ) by Paul Le Farge (2017)
 1. [*The Changeling*](https://books.google.com/books?id=rJDbDgAAQBAJ) by Victor LaValle (2017)
 1. [*The Blondes*](https://books.google.com/books/about/The_Blondes.html?id=FC6lBAAAQBAJ) by Emily Schultz (2015)
-1. [*The Lamb Will Slaughter the Lion*](https://books.google.com/books/about/The_Lamb_Will_Slaughter_the_Lion.html?id=QCu2DQAAQBAJ) by Margaret Killjoy (2017)
 1. [*The Dark Days Club*](https://books.google.com/books/about/The_Dark_Days_Club.html?id=5ei-CQAAQBAJ) by Alison Goodman (2016)
 1. [*A Planet for Rent*](https://books.google.com/books?isbn=1632060086) by YOSS (trans. David Frye) (2014)
 1. [*The Dream-quest of Vellitt Boe*](https://books.google.com/books?isbn=0765386518) by Kij Johnson (2016)
@@ -33,6 +32,7 @@
 
 ## Read This Year
 
+1. [*Silver on the Road*](https://books.google.com/books?id=o6OZBgAAQBAJ) by Laura-Ann Gilman (2015)
 1. [*The Red Threads of Fortune*](https://books.google.com/books?id=wWR9DQAAQBAJ) by JY Yang (2017)
 1. [*Winter Tide*](https://books.google.com/books?id=Qf4ZDgAAQBAJ) by Ruthanna Emrys (2017)
 1. [*Liquid Intelligence*](https://books.google.com/books?id=yUKAAwAAQBAJ) by Dave Arnold (2014)
