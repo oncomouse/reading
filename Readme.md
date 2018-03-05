@@ -32,7 +32,7 @@
 
 ## Read This Year
 
-1. [*Silver on the Road*](https://books.google.com/books?id=o6OZBgAAQBAJ) by Laura-Ann Gilman (2015)
+1. [*Silver on the Road*](https://books.google.com/books?id=o6OZBgAAQBAJ) by Laura Anne Gilman (2015)
 1. [*The Red Threads of Fortune*](https://books.google.com/books?id=wWR9DQAAQBAJ) by JY Yang (2017)
 1. [*Winter Tide*](https://books.google.com/books?id=Qf4ZDgAAQBAJ) by Ruthanna Emrys (2017)
 1. [*Liquid Intelligence*](https://books.google.com/books?id=yUKAAwAAQBAJ) by Dave Arnold (2014)
