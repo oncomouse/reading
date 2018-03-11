@@ -2,7 +2,7 @@
 
 ## Currently Reading
 
-1. [*The Cold Eye*](https://books.google.com/books/about/The_Cold_Eye.html?id=i0tODwAAQBAJ) by Laura Anne Gilman (2017)
+1. [*The Dream-quest of Vellitt Boe*](https://books.google.com/books?isbn=0765386518) by Kij Johnson (2016)
 
 ## Up Next
 
@@ -25,14 +25,13 @@
 1. [*The Blondes*](https://books.google.com/books/about/The_Blondes.html?id=FC6lBAAAQBAJ) by Emily Schultz (2015)
 1. [*The Dark Days Club*](https://books.google.com/books/about/The_Dark_Days_Club.html?id=5ei-CQAAQBAJ) by Alison Goodman (2016)
 1. [*A Planet for Rent*](https://books.google.com/books?isbn=1632060086) by YOSS (trans. David Frye) (2014)
-1. [*The Dream-quest of Vellitt Boe*](https://books.google.com/books?isbn=0765386518) by Kij Johnson (2016)
 1. [*Certain Dark Things*](https://books.google.com/books?isbn=1250099099) by Silvia Moreno-Garcia (2016)
 1. [*The Sunlight Pilgrims*](https://books.google.com/books?isbn=0553418882) by Jenni Fagan (2016)
 1. [*Vermilion*](https://books.google.com/books?isbn=1939905087) by Molly Tanzer (2015)
 
 ## Read This Year
 
-
+1. [*The Cold Eye*](https://books.google.com/books/about/The_Cold_Eye.html?id=i0tODwAAQBAJ) by Laura Anne Gilman (2017)
 1. [*The Lamb Will Slaughter the Lion*](https://books.google.com/books/about/The_Lamb_Will_Slaughter_the_Lion.html?id=QCu2DQAAQBAJ) by Margaret Killjoy (2017)
 1. [*Silver on the Road*](https://books.google.com/books?id=o6OZBgAAQBAJ) by Laura Anne Gilman (2015)
 1. [*The Red Threads of Fortune*](https://books.google.com/books?id=wWR9DQAAQBAJ) by JY Yang (2017)
