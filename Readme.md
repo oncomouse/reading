@@ -2,7 +2,7 @@
 
 ## Currently Reading
 
-1. [*The Dream-quest of Vellitt Boe*](https://books.google.com/books?isbn=0765386518) by Kij Johnson (2016)
+1. [*Vermilion*](https://books.google.com/books?isbn=1939905087) by Molly Tanzer (2015)
 
 ## Up Next
 
@@ -10,6 +10,7 @@
 1. [*The Traitor Baru Cormorant*](https://books.google.com/books?id=7VGNBwAAQBAJ) by Seth Dickinson (2015)
 1. [*A Wrinkle in Time*](https://books.google.com/books?id=r119-dYq0mwC) by Madeline L'Engle (1962)
 1. [*The Black Tides of Heaven*](https://books.google.com/books?id=nGR9DQAAQBAJ) by JY Yang (2017)
+1. [*The Dream-quest of Vellitt Boe*](https://books.google.com/books?isbn=0765386518) by Kij Johnson (2016)
 1. [*A Closed and Common Orbit*](https://books.google.com/books?id=34ixCwAAQBAJ) by Becky Chambers (2016)
 1. [*The Complete Hainish Novels & Stories*](https://www.loa.org/books/554-the-hainish-novels-stories-boxed-set) by Ursula K. Le Guin (2017)
 1. [*The Complete Orsinia*](https://www.loa.org/books/513-the-complete-orsinia) by Ursula K. Le Guin (2016)
@@ -27,7 +28,6 @@
 1. [*A Planet for Rent*](https://books.google.com/books?isbn=1632060086) by YOSS (trans. David Frye) (2014)
 1. [*Certain Dark Things*](https://books.google.com/books?isbn=1250099099) by Silvia Moreno-Garcia (2016)
 1. [*The Sunlight Pilgrims*](https://books.google.com/books?isbn=0553418882) by Jenni Fagan (2016)
-1. [*Vermilion*](https://books.google.com/books?isbn=1939905087) by Molly Tanzer (2015)
 
 ## Read This Year
 
