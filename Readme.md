@@ -2,7 +2,7 @@
 
 ## Currently Reading
 
-1. [*Vermilion*](https://books.google.com/books?isbn=1939905087) by Molly Tanzer (2015)
+1. [*The Only Harmless Great Thing*](https://books.google.com/books?id=8-_WDgAAQBAJ&source=gbs_navlinks_s) by Brooke Bolander (2018)
 
 ## Up Next
 
@@ -31,6 +31,7 @@
 
 ## Read This Year
 
+1. [*Vermilion*](https://books.google.com/books?isbn=1939905087) by Molly Tanzer (2015)
 1. [*The Cold Eye*](https://books.google.com/books/about/The_Cold_Eye.html?id=i0tODwAAQBAJ) by Laura Anne Gilman (2017)
 1. [*The Lamb Will Slaughter the Lion*](https://books.google.com/books/about/The_Lamb_Will_Slaughter_the_Lion.html?id=QCu2DQAAQBAJ) by Margaret Killjoy (2017)
 1. [*Silver on the Road*](https://books.google.com/books?id=o6OZBgAAQBAJ) by Laura Anne Gilman (2015)
