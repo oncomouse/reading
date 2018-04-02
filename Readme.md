@@ -28,6 +28,7 @@
 1. [*Certain Dark Things*](https://books.google.com/books?isbn=1250099099) by Silvia Moreno-Garcia (2016)
 1. [*The Sunlight Pilgrims*](https://books.google.com/books?isbn=0553418882) by Jenni Fagan (2016)
 1. [*The Only Harmless Great Thing*](https://books.google.com/books?id=8-_WDgAAQBAJ&source=gbs_navlinks_s) by Brooke Bolander (2018)
+1. [*Creatures of Will and Temper*](https://books.google.com/books?id=uC62DQAAQBAJ) by Molly Tanzer (2017)
 
 ## Read This Year
 
