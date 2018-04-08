@@ -2,7 +2,7 @@
 
 ## Currently Reading
 
-1. [*The Children of Blood and Bone*](https://books.google.com/books?id=vuguDwAAQBAJ) by Tomi Adeyami (2018)
+1. [*Creatures of Will and Temper*](https://books.google.com/books?id=uC62DQAAQBAJ) by Molly Tanzer (2017)
 
 ## Up Next
 
@@ -28,10 +28,10 @@
 1. [*Certain Dark Things*](https://books.google.com/books?isbn=1250099099) by Silvia Moreno-Garcia (2016)
 1. [*The Sunlight Pilgrims*](https://books.google.com/books?isbn=0553418882) by Jenni Fagan (2016)
 1. [*The Only Harmless Great Thing*](https://books.google.com/books?id=8-_WDgAAQBAJ&source=gbs_navlinks_s) by Brooke Bolander (2018)
-1. [*Creatures of Will and Temper*](https://books.google.com/books?id=uC62DQAAQBAJ) by Molly Tanzer (2017)
 
 ## Read This Year
 
+1. [*The Children of Blood and Bone*](https://books.google.com/books?id=vuguDwAAQBAJ) by Tomi Adeyami (2018)
 1. [*The Black Tides of Heaven*](https://books.google.com/books?id=nGR9DQAAQBAJ) by JY Yang (2017)
 1. [*Vermilion*](https://books.google.com/books?isbn=1939905087) by Molly Tanzer (2015)
 1. [*The Cold Eye*](https://books.google.com/books/about/The_Cold_Eye.html?id=i0tODwAAQBAJ) by Laura Anne Gilman (2017)
