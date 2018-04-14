@@ -2,7 +2,7 @@
 
 ## Currently Reading
 
-1. [*Creatures of Will and Temper*](https://books.google.com/books?id=uC62DQAAQBAJ) by Molly Tanzer (2017)
+
 
 ## Up Next
 
@@ -31,14 +31,15 @@
 1. [*River of Teeth*](https://books.google.com/books?id=5mR9DQAAQBAJ) by Sarah Gailey (2017)
 1. [*Up Against It*](https://books.google.com/books?id=dTtZ4GPU6z0C) by M.J. Locke (2011)
 1. [*The Kin of Ata Are Waiting for You*](https://books.google.com/books?id=kIp65gZQM40C) by Dorothy Bryant (1971)
-1. [*All Systems Red*](https://books.google.com/books?isbn=0765397528) by Martha Wells (2017)
 1. [*Beggars in Spain*](https://books.google.com/books?isbn=0060733489) by Nancy Kress (1993)
 1. [*The Stars Are Legion*](https://books.google.com/books?isbn=1481447955) by Kameron Hurley (2017)
 1. [*China Mountain Zhang*](
 https://books.google.com/books?isbn=1466827130) by Maureen F. McHugh (1992)
+1. [*Creatures of Will and Temper*](https://books.google.com/books?id=uC62DQAAQBAJ) by Molly Tanzer (2017)
 
 ## Read This Year
 
+1. [*All Systems Red*](https://books.google.com/books?isbn=0765397528) by Martha Wells (2017)
 1. [*The Children of Blood and Bone*](https://books.google.com/books?id=vuguDwAAQBAJ) by Tomi Adeyami (2018)
 1. [*The Black Tides of Heaven*](https://books.google.com/books?id=nGR9DQAAQBAJ) by JY Yang (2017)
 1. [*Vermilion*](https://books.google.com/books?isbn=1939905087) by Molly Tanzer (2015)
