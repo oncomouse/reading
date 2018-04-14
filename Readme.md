@@ -2,7 +2,8 @@
 
 ## Currently Reading
 
-1. [*River of Teeth*](https://books.google.com/books?id=5mR9DQAAQBAJ) by Sarah Gailey (2017)
+1. [*The Stars Are Legion*](https://books.google.com/books?isbn=1481447955) by Kameron Hurley (2017)
+1. [*A Closed and Common Orbit*](https://books.google.com/books?id=34ixCwAAQBAJ) by Becky Chambers (2016)
 
 ## Up Next
 
@@ -10,7 +11,6 @@
 1. [*The Traitor Baru Cormorant*](https://books.google.com/books?id=7VGNBwAAQBAJ) by Seth Dickinson (2015)
 1. [*A Wrinkle in Time*](https://books.google.com/books?id=r119-dYq0mwC) by Madeline L'Engle (1962)
 1. [*The Dream-quest of Vellitt Boe*](https://books.google.com/books?isbn=0765386518) by Kij Johnson (2016)
-1. [*A Closed and Common Orbit*](https://books.google.com/books?id=34ixCwAAQBAJ) by Becky Chambers (2016)
 1. [*The Complete Hainish Novels & Stories*](https://www.loa.org/books/554-the-hainish-novels-stories-boxed-set) by Ursula K. Le Guin (2017)
 1. [*The Complete Orsinia*](https://www.loa.org/books/513-the-complete-orsinia) by Ursula K. Le Guin (2016)
 1. [*The Wall of Storms*](https://books.google.com/books?id=EkqKCwAAQBAJ) by Ken Liu (2016)
@@ -31,13 +31,12 @@
 1. [*Up Against It*](https://books.google.com/books?id=dTtZ4GPU6z0C) by M.J. Locke (2011)
 1. [*The Kin of Ata Are Waiting for You*](https://books.google.com/books?id=kIp65gZQM40C) by Dorothy Bryant (1971)
 1. [*Beggars in Spain*](https://books.google.com/books?isbn=0060733489) by Nancy Kress (1993)
-1. [*The Stars Are Legion*](https://books.google.com/books?isbn=1481447955) by Kameron Hurley (2017)
-1. [*China Mountain Zhang*](
-https://books.google.com/books?isbn=1466827130) by Maureen F. McHugh (1992)
+1. [*China Mountain Zhang*](https://books.google.com/books?isbn=1466827130) by Maureen F. McHugh (1992)
 1. [*Creatures of Will and Temper*](https://books.google.com/books?id=uC62DQAAQBAJ) by Molly Tanzer (2017)
 
 ## Read This Year
 
+1. [*River of Teeth*](https://books.google.com/books?id=5mR9DQAAQBAJ) by Sarah Gailey (2017)
 1. [*All Systems Red*](https://books.google.com/books?isbn=0765397528) by Martha Wells (2017)
 1. [*The Children of Blood and Bone*](https://books.google.com/books?id=vuguDwAAQBAJ) by Tomi Adeyami (2018)
 1. [*The Black Tides of Heaven*](https://books.google.com/books?id=nGR9DQAAQBAJ) by JY Yang (2017)
