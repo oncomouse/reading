@@ -2,11 +2,11 @@
 
 ## Currently Reading
 
-1. [*The Stars Are Legion*](https://books.google.com/books?isbn=1481447955) by Kameron Hurley (2017)
-1. [*A Closed and Common Orbit*](https://books.google.com/books?id=34ixCwAAQBAJ) by Becky Chambers (2016)
+1. [*Up Against It*](https://books.google.com/books?id=dTtZ4GPU6z0C) by M.J. Locke (2011)
 
 ## Up Next
 
+1. [*A Closed and Common Orbit*](https://books.google.com/books?id=34ixCwAAQBAJ) by Becky Chambers (2016)
 1. [*The Mirror Empire*](https://books.google.com/books?id=Tls8CgAAQBAJ) by Kameron Hurley (2014)
 1. [*The Traitor Baru Cormorant*](https://books.google.com/books?id=7VGNBwAAQBAJ) by Seth Dickinson (2015)
 1. [*A Wrinkle in Time*](https://books.google.com/books?id=r119-dYq0mwC) by Madeline L'Engle (1962)
@@ -28,7 +28,6 @@
 1. [*Certain Dark Things*](https://books.google.com/books?isbn=1250099099) by Silvia Moreno-Garcia (2016)
 1. [*The Sunlight Pilgrims*](https://books.google.com/books?isbn=0553418882) by Jenni Fagan (2016)
 1. [*The Only Harmless Great Thing*](https://books.google.com/books?id=8-_WDgAAQBAJ&source=gbs_navlinks_s) by Brooke Bolander (2018)
-1. [*Up Against It*](https://books.google.com/books?id=dTtZ4GPU6z0C) by M.J. Locke (2011)
 1. [*The Kin of Ata Are Waiting for You*](https://books.google.com/books?id=kIp65gZQM40C) by Dorothy Bryant (1971)
 1. [*Beggars in Spain*](https://books.google.com/books?isbn=0060733489) by Nancy Kress (1993)
 1. [*China Mountain Zhang*](https://books.google.com/books?isbn=1466827130) by Maureen F. McHugh (1992)
@@ -36,6 +35,7 @@
 
 ## Read This Year
 
+1. [*The Stars Are Legion*](https://books.google.com/books?isbn=1481447955) by Kameron Hurley (2017)
 1. [*River of Teeth*](https://books.google.com/books?id=5mR9DQAAQBAJ) by Sarah Gailey (2017)
 1. [*All Systems Red*](https://books.google.com/books?isbn=0765397528) by Martha Wells (2017)
 1. [*The Children of Blood and Bone*](https://books.google.com/books?id=vuguDwAAQBAJ) by Tomi Adeyami (2018)
