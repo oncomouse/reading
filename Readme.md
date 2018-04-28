@@ -2,7 +2,7 @@
 
 ## Currently Reading
 
-1. [*Up Against It*](https://books.google.com/books?id=dTtZ4GPU6z0C) by M.J. Locke (2011)
+1. [*The Dream-quest of Vellitt Boe*](https://books.google.com/books?isbn=0765386518) by Kij Johnson (2016)
 
 ## Up Next
 
@@ -10,7 +10,6 @@
 1. [*The Mirror Empire*](https://books.google.com/books?id=Tls8CgAAQBAJ) by Kameron Hurley (2014)
 1. [*The Traitor Baru Cormorant*](https://books.google.com/books?id=7VGNBwAAQBAJ) by Seth Dickinson (2015)
 1. [*A Wrinkle in Time*](https://books.google.com/books?id=r119-dYq0mwC) by Madeline L'Engle (1962)
-1. [*The Dream-quest of Vellitt Boe*](https://books.google.com/books?isbn=0765386518) by Kij Johnson (2016)
 1. [*The Complete Hainish Novels & Stories*](https://www.loa.org/books/554-the-hainish-novels-stories-boxed-set) by Ursula K. Le Guin (2017)
 1. [*The Complete Orsinia*](https://www.loa.org/books/513-the-complete-orsinia) by Ursula K. Le Guin (2016)
 1. [*The Wall of Storms*](https://books.google.com/books?id=EkqKCwAAQBAJ) by Ken Liu (2016)
@@ -35,6 +34,7 @@
 
 ## Read This Year
 
+1. [*Up Against It*](https://books.google.com/books?id=dTtZ4GPU6z0C) by M.J. Locke (2011)
 1. [*The Stars Are Legion*](https://books.google.com/books?isbn=1481447955) by Kameron Hurley (2017)
 1. [*River of Teeth*](https://books.google.com/books?id=5mR9DQAAQBAJ) by Sarah Gailey (2017)
 1. [*All Systems Red*](https://books.google.com/books?isbn=0765397528) by Martha Wells (2017)
