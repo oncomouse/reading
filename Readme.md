@@ -31,6 +31,11 @@
 1. [*Beggars in Spain*](https://books.google.com/books?isbn=0060733489) by Nancy Kress (1993)
 1. [*China Mountain Zhang*](https://books.google.com/books?isbn=1466827130) by Maureen F. McHugh (1992)
 1. [*Creatures of Will and Temper*](https://books.google.com/books?id=uC62DQAAQBAJ) by Molly Tanzer (2017)
+1. [*Space Opera*](https://books.google.com/books?id=DGwvjwEACAAJ) by Catherynne M. Valente (2017)
+1. [*The Barrow Will Send What It May*](https://books.google.com/books?id=P-wyDwAAQBAJ) by Margaret Killjoy
+1. [*Too Like the Lightning*](https://books.google.com/books?id=RuWUCgAAQBAJ) by Ada Palmer (2016)
+1. [*Seven Surrenders*](https://books.google.com/books?id=bLcsDAAAQBAJ) by Ada Palmer (2017)
+1. [*The Will to Battle*](https://books.google.com/books?id=cF3dDgAAQBAJ) by Ada Palmer (2017)
 
 ## Read This Year
 
