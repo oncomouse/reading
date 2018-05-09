@@ -2,7 +2,7 @@
 
 ## Currently Reading
 
-1. [*The Barrow Will Send What It May*](https://books.google.com/books?id=P-wyDwAAQBAJ) by Margaret Killjoy
+1. [*Agents of Dreamland*](https://books.google.com/books?id=76DvvQAACAAJ) by Caitlín R. Kiernan
 
 ## Up Next
 
@@ -36,8 +36,10 @@
 1. [*Seven Surrenders*](https://books.google.com/books?id=bLcsDAAAQBAJ) by Ada Palmer (2017)
 1. [*The Will to Battle*](https://books.google.com/books?id=cF3dDgAAQBAJ) by Ada Palmer (2017)
 
+
 ## Read This Year
 
+1. [*The Barrow Will Send What It May*](https://books.google.com/books?id=P-wyDwAAQBAJ) by Margaret Killjoy
 1. [*Amberlough*](https://books.google.com/books/about/Amberlough.html?id=TEzxswEACAAJ) by Lara Elena Donnelly (2018)
 1. [*The Dream-quest of Vellitt Boe*](https://books.google.com/books?isbn=0765386518) by Kij Johnson (2016)
 1. [*Up Against It*](https://books.google.com/books?id=dTtZ4GPU6z0C) by M.J. Locke (2011)
