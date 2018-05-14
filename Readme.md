@@ -2,11 +2,10 @@
 
 ## Currently Reading
 
-
+1. [*A Closed and Common Orbit*](https://books.google.com/books?id=34ixCwAAQBAJ) by Becky Chambers (2016)
 
 ## Up Next
 
-1. [*A Closed and Common Orbit*](https://books.google.com/books?id=34ixCwAAQBAJ) by Becky Chambers (2016)
 1. [*The Mirror Empire*](https://books.google.com/books?id=Tls8CgAAQBAJ) by Kameron Hurley (2014)
 1. [*A Wrinkle in Time*](https://books.google.com/books?id=r119-dYq0mwC) by Madeline L'Engle (1962)
 1. [*The Complete Hainish Novels & Stories*](https://www.loa.org/books/554-the-hainish-novels-stories-boxed-set) by Ursula K. Le Guin (2017)
@@ -33,7 +32,6 @@
 1. [*Too Like the Lightning*](https://books.google.com/books?id=RuWUCgAAQBAJ) by Ada Palmer (2016)
 1. [*Seven Surrenders*](https://books.google.com/books?id=bLcsDAAAQBAJ) by Ada Palmer (2017)
 1. [*The Will to Battle*](https://books.google.com/books?id=cF3dDgAAQBAJ) by Ada Palmer (2017)
-
 
 ## Read This Year
 
