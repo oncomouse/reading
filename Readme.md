@@ -35,7 +35,7 @@
 
 ## Read This Year
 
-1. [*Space Opera*](https://books.google.com/books?id=DGwvjwEACAAJ) by Catherynne M. Valente (2017)
+1. [*Space Opera*](https://books.google.com/books?id=DGwvjwEACAAJ) by Catherynne M. Valente (2018)
 1. [*Binti: Home*](https://books.google.com/books?id=RywKDAAAQBAJ) by Nnedi Okorafor (2017)
 1. [*Agents of Dreamland*](https://books.google.com/books?id=76DvvQAACAAJ) by Caitlín R. Kiernan
 1. [*The Barrow Will Send What It May*](https://books.google.com/books?id=P-wyDwAAQBAJ) by Margaret Killjoy
