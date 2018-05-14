@@ -2,7 +2,7 @@
 
 ## Currently Reading
 
-1. [*Agents of Dreamland*](https://books.google.com/books?id=76DvvQAACAAJ) by Caitlín R. Kiernan
+
 
 ## Up Next
 
@@ -15,7 +15,6 @@
 1. [*The Traitor Baru Cormorant*](https://books.google.com/books?id=7VGNBwAAQBAJ) by Seth Dickinson (2015)
 1. [*The Delirium Brief*](https://books.google.com/books?id=XGckDwAAQBAJ) by Charles Stross (2017)
 1. [*The Twenty Days of Turin*](https://books.google.com/books?id=L1J8DAAAQBAJ) by Giorgio de Maria (1977; 2017)
-1. [*Binti: Home*](https://books.google.com/books?id=RywKDAAAQBAJ) by Nnedi Okorafor (2017)
 1. [*Binti: The Night Masquerade*](https://books.google.com/books?id=wAgsDgAAQBAJ) by Nnedi Okorafor (2018)
 1. [*Simple Forms*](https://books.google.com/books?id=QhJyCwAAQBAJ) by André Jolles (1929; 2017)
 1. [*Company Town*](https://books.google.com/books?id=WbLPCgAAQBAJ) by Madeline Ashby (2016)
@@ -31,7 +30,6 @@
 1. [*Beggars in Spain*](https://books.google.com/books?isbn=0060733489) by Nancy Kress (1993)
 1. [*China Mountain Zhang*](https://books.google.com/books?isbn=1466827130) by Maureen F. McHugh (1992)
 1. [*Creatures of Will and Temper*](https://books.google.com/books?id=uC62DQAAQBAJ) by Molly Tanzer (2017)
-1. [*Space Opera*](https://books.google.com/books?id=DGwvjwEACAAJ) by Catherynne M. Valente (2017)
 1. [*Too Like the Lightning*](https://books.google.com/books?id=RuWUCgAAQBAJ) by Ada Palmer (2016)
 1. [*Seven Surrenders*](https://books.google.com/books?id=bLcsDAAAQBAJ) by Ada Palmer (2017)
 1. [*The Will to Battle*](https://books.google.com/books?id=cF3dDgAAQBAJ) by Ada Palmer (2017)
@@ -39,6 +37,9 @@
 
 ## Read This Year
 
+1. [*Space Opera*](https://books.google.com/books?id=DGwvjwEACAAJ) by Catherynne M. Valente (2017)
+1. [*Binti: Home*](https://books.google.com/books?id=RywKDAAAQBAJ) by Nnedi Okorafor (2017)
+1. [*Agents of Dreamland*](https://books.google.com/books?id=76DvvQAACAAJ) by Caitlín R. Kiernan
 1. [*The Barrow Will Send What It May*](https://books.google.com/books?id=P-wyDwAAQBAJ) by Margaret Killjoy
 1. [*Amberlough*](https://books.google.com/books/about/Amberlough.html?id=TEzxswEACAAJ) by Lara Elena Donnelly (2018)
 1. [*The Dream-quest of Vellitt Boe*](https://books.google.com/books?isbn=0765386518) by Kij Johnson (2016)
