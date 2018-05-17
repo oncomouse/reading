@@ -2,7 +2,7 @@
 
 ## Currently Reading
 
-1. [*A Closed and Common Orbit*](https://books.google.com/books?id=34ixCwAAQBAJ) by Becky Chambers (2016)
+1. [*Binti: The Night Masquerade*](https://books.google.com/books?id=wAgsDgAAQBAJ) by Nnedi Okorafor (2018)
 
 ## Up Next
 
@@ -14,7 +14,6 @@
 1. [*The Traitor Baru Cormorant*](https://books.google.com/books?id=7VGNBwAAQBAJ) by Seth Dickinson (2015)
 1. [*The Delirium Brief*](https://books.google.com/books?id=XGckDwAAQBAJ) by Charles Stross (2017)
 1. [*The Twenty Days of Turin*](https://books.google.com/books?id=L1J8DAAAQBAJ) by Giorgio de Maria (1977; 2017)
-1. [*Binti: The Night Masquerade*](https://books.google.com/books?id=wAgsDgAAQBAJ) by Nnedi Okorafor (2018)
 1. [*Simple Forms*](https://books.google.com/books?id=QhJyCwAAQBAJ) by André Jolles (1929; 2017)
 1. [*Company Town*](https://books.google.com/books?id=WbLPCgAAQBAJ) by Madeline Ashby (2016)
 1. [*The Night Ocean*](https://books.google.com/books?id=lx2MDAAAQBAJ) by Paul Le Farge (2017)
@@ -35,6 +34,7 @@
 
 ## Read This Year
 
+1. [*A Closed and Common Orbit*](https://books.google.com/books?id=34ixCwAAQBAJ) by Becky Chambers (2016)
 1. [*Space Opera*](https://books.google.com/books?id=DGwvjwEACAAJ) by Catherynne M. Valente (2018)
 1. [*Binti: Home*](https://books.google.com/books?id=RywKDAAAQBAJ) by Nnedi Okorafor (2017)
 1. [*Agents of Dreamland*](https://books.google.com/books?id=76DvvQAACAAJ) by Caitlín R. Kiernan (2017)
