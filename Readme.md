@@ -35,6 +35,7 @@
 ## Read This Year
 
 1. [*A Closed and Common Orbit*](https://books.google.com/books?id=34ixCwAAQBAJ) by Becky Chambers (2016)
+1. [*Take What You Need and Compost the Rest*](http://tangledwilderness.org/pdfs/takewhatyouneed-web.pdf) by Margaret Killjoy (2013)
 1. [*Space Opera*](https://books.google.com/books?id=DGwvjwEACAAJ) by Catherynne M. Valente (2018)
 1. [*Binti: Home*](https://books.google.com/books?id=RywKDAAAQBAJ) by Nnedi Okorafor (2017)
 1. [*Agents of Dreamland*](https://books.google.com/books?id=76DvvQAACAAJ) by Caitlín R. Kiernan (2017)
