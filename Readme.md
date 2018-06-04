@@ -2,7 +2,7 @@
 
 ## Currently Reading
 
-1. [*Too Like the Lightning*](https://books.google.com/books?id=RuWUCgAAQBAJ) by Ada Palmer (2016)
+1. [*Blackfish City*](https://books.google.com/books?isbn=0062684841) by Sam J. Miller (2018)
 
 ## Up Next
 
@@ -28,8 +28,11 @@
 1. [*Beggars in Spain*](https://books.google.com/books?isbn=0060733489) by Nancy Kress (1993)
 1. [*China Mountain Zhang*](https://books.google.com/books?isbn=1466827130) by Maureen F. McHugh (1992)
 1. [*Creatures of Will and Temper*](https://books.google.com/books?id=uC62DQAAQBAJ) by Molly Tanzer (2017)
+1. [*Too Like the Lightning*](https://books.google.com/books?id=RuWUCgAAQBAJ) by Ada Palmer (2016)
 1. [*Seven Surrenders*](https://books.google.com/books?id=bLcsDAAAQBAJ) by Ada Palmer (2017)
 1. [*The Will to Battle*](https://books.google.com/books?id=cF3dDgAAQBAJ) by Ada Palmer (2017)
+1. [*Armistice*](https://books.google.com/books?isbn=1250173558) by Lara Elena Donnelly (2018)
+1. [*Artificial Condition*](https://books.google.com/books?isbn=1250186935) by Martha Wells (2018)
 
 ## Read This Year
 
