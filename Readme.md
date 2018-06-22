@@ -31,6 +31,7 @@
 1. [*Too Like the Lightning*](https://books.google.com/books?id=RuWUCgAAQBAJ) by Ada Palmer (2016)
 1. [*Seven Surrenders*](https://books.google.com/books?id=bLcsDAAAQBAJ) by Ada Palmer (2017)
 1. [*The Will to Battle*](https://books.google.com/books?id=cF3dDgAAQBAJ) by Ada Palmer (2017)
+1. [*Black Helipcopters*](https://books.google.com/books?isbn=1250191122) by Caitlín R. Kiernan (2018)
 
 ## Read This Year
 
