@@ -32,6 +32,8 @@
 1. [*Too Like the Lightning*](https://books.google.com/books?id=RuWUCgAAQBAJ) by Ada Palmer (2016)
 1. [*Seven Surrenders*](https://books.google.com/books?id=bLcsDAAAQBAJ) by Ada Palmer (2017)
 1. [*The Will to Battle*](https://books.google.com/books?id=cF3dDgAAQBAJ) by Ada Palmer (2017)
+1. [*The Poppy War*](https://books.google.com/books?id=c74wDwAAQBAJ) by R.F. Kuang (2018)
+1. [*The Gulf*](https://books.google.com/books?id=BfZ2tAEACAAJ) by Jack E. Davis (2017)
 
 ## Read This Year
 
