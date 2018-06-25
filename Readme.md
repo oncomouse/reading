@@ -37,7 +37,7 @@
 
 1. [*Artificial Condition*](https://books.google.com/books?isbn=1250186935) by Martha Wells (2018)
 1. [*Blackfish City*](https://books.google.com/books?isbn=0062684841) by Sam J. Miller (2018)
-1. [*The Thirty-Nine Steps*](http://www.gutenberg.org/ebooks/558) by John Buchan
+1. [*The Thirty-Nine Steps*](http://www.gutenberg.org/ebooks/558) by John Buchan (1915)
 1. [*Binti: The Night Masquerade*](https://books.google.com/books?id=wAgsDgAAQBAJ) by Nnedi Okorafor (2018)
 1. [*A Closed and Common Orbit*](https://books.google.com/books?id=34ixCwAAQBAJ) by Becky Chambers (2016)
 1. [*Take What You Need and Compost the Rest*](http://tangledwilderness.org/pdfs/takewhatyouneed-web.pdf) by Margaret Killjoy (2013)
