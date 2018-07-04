@@ -3,7 +3,7 @@
 ## Currently Reading
 
 1. [*Armistice*](https://books.google.com/books?isbn=1250173558) by Lara Elena Donnelly (2018)
-1. [*Black Helipcopters*](https://books.google.com/books?isbn=1250191122) by Caitlín R. Kiernan (2018)
+1. *We Have Always Lived in the Castle* in [*Novels and Stories*](https://books.google.com/books?id=VXQ7AQAAIAAJ) by Shirley Jackson (1962; 2010)
 
 ## Up Next
 
@@ -69,3 +69,4 @@
 1. [*God's War*](https://books.google.com/books?id=bCapBAAAQBAJ) by Kameron Hurley (2011)
 1. [*Binti*](https://books.google.com/books?id=4jmpCQAAQBAJ) by Nnedi Okorafor (2015)
 1. [*An Unkindness of Ghosts*](https://books.google.com/books?id=oYa4DgAAQBAJ) by Rivers Solomon (2017)
+1. [*Black Helipcopters*](https://books.google.com/books?isbn=1250191122) by Caitlín R. Kiernan (2018)
