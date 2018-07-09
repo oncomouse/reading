@@ -34,6 +34,10 @@
 1. [*The Will to Battle*](https://books.google.com/books?id=cF3dDgAAQBAJ) by Ada Palmer (2017)
 1. [*The Poppy War*](https://books.google.com/books?id=c74wDwAAQBAJ) by R.F. Kuang (2018)
 1. [*The Gulf*](https://books.google.com/books?id=BfZ2tAEACAAJ) by Jack E. Davis (2017)
+1. [*The Thousand Year Bearch*](https://books.google.com/books?id=up93swEACAAJ) by Tobi Hirotaka (2002; 2018)
+1. [*Sorcerer to the Crown*](https://books.google.com/books?id=C-ZJBgAAQBAJ) by Zen Cho (2015)
+1. [*Before Mars*](https://books.google.com/books?isbn=0399587330) by Emma Newman (2018)
+1. *Taste of Marrow* in [*American Hippo*](https://books.google.com/books?isbn=1250176425) by Sarah Gailey (2017; 2018)
 
 ## Read This Year
 
