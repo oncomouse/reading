@@ -2,8 +2,7 @@
 
 ## Currently Reading
 
-1. [*Armistice*](https://books.google.com/books?isbn=1250173558) by Lara Elena Donnelly (2018)
-1. *We Have Always Lived in the Castle* in [*Novels and Stories*](https://books.google.com/books?id=VXQ7AQAAIAAJ) by Shirley Jackson (1962; 2010)
+1. [*The Outbreak of the Peloponnesian War*](https://books.google.com/books?id=xoYiABG55HkC) by Donald Kagan (1969)
 
 ## Up Next
 
@@ -24,7 +23,7 @@
 1. [*A Planet for Rent*](https://books.google.com/books?isbn=1632060086) by YOSS (trans. David Frye) (2014)
 1. [*Certain Dark Things*](https://books.google.com/books?isbn=1250099099) by Silvia Moreno-Garcia (2016)
 1. [*The Sunlight Pilgrims*](https://books.google.com/books?isbn=0553418882) by Jenni Fagan (2016)
-1. [*The Only Harmless Great Thing*](https://books.google.com/books?id=8-_WDgAAQBAJ&source=gbs_navlinks_s) by Brooke Bolander (2018)
+1. [*The Only Harmless Great Thing*](https://books.google.com/books?isbn=125016947X) by Brooke Bolander (2018)
 1. [*The Kin of Ata Are Waiting for You*](https://books.google.com/books?id=kIp65gZQM40C) by Dorothy Bryant (1971)
 1. [*Beggars in Spain*](https://books.google.com/books?isbn=0060733489) by Nancy Kress (1993)
 1. [*China Mountain Zhang*](https://books.google.com/books?isbn=1466827130) by Maureen F. McHugh (1992)
@@ -34,13 +33,20 @@
 1. [*The Will to Battle*](https://books.google.com/books?id=cF3dDgAAQBAJ) by Ada Palmer (2017)
 1. [*The Poppy War*](https://books.google.com/books?id=c74wDwAAQBAJ) by R.F. Kuang (2018)
 1. [*The Gulf*](https://books.google.com/books?id=BfZ2tAEACAAJ) by Jack E. Davis (2017)
-1. [*The Thousand Year Bearch*](https://books.google.com/books?id=up93swEACAAJ) by Tobi Hirotaka (2002; 2018)
+1. [*The Thousand Year Beach*](https://books.google.com/books?id=up93swEACAAJ) by Tobi Hirotaka (2002; 2018)
 1. [*Sorcerer to the Crown*](https://books.google.com/books?id=C-ZJBgAAQBAJ) by Zen Cho (2015)
 1. [*Before Mars*](https://books.google.com/books?isbn=0399587330) by Emma Newman (2018)
-1. *Taste of Marrow* in [*American Hippo*](https://books.google.com/books?isbn=1250176425) by Sarah Gailey (2017; 2018)
+1. [*Armistice*](https://books.google.com/books?isbn=1250173558) by Lara Elena Donnelly (2018)
+1. [*The Archidamian War*](https://books.google.com/books?id=iIApuAEACAAJ) by Donald Kagan (1974)
+1. [*The Peace of Nicias and the Sicilian Expedition*](https://books.google.com/books?id=OEXxtgEACAAJ) by Donald Kagan (1981)
+1. [*The Fall of the Athenian Empire*](https://books.google.com/books?id=DNNCnTmLbPYC) by Donald Kagan (1987)
 
 ## Read This Year
 
+1. *Taste of Marrow* in [*American Hippo*](https://books.google.com/books/about/American_Hippo.html?id=xJZVDwAAQBAJ) by Sarah Gailey (2017; 2018) 
+1. *We Have Always Lived in the Castle* in [*Novels and Stories*](https://books.google.com/books?id=VXQ7AQAAIAAJ) by Shirley Jackson (1962; 2010)
+1. [*In the All-Night Café*](https://books.google.com/books/about/In_the_All_Night_Caf%C3%A9.html?id=sVcUswEACAAJ) by Stuart David (2016)
+1. [*Black Helipcopters*](https://books.google.com/books?isbn=1250191122) by Caitlín R. Kiernan (2018)
 1. [*Artificial Condition*](https://books.google.com/books?isbn=1250186935) by Martha Wells (2018)
 1. [*Blackfish City*](https://books.google.com/books?isbn=0062684841) by Sam J. Miller (2018)
 1. [*The Thirty-Nine Steps*](http://www.gutenberg.org/ebooks/558) by John Buchan (1915)
@@ -73,4 +79,3 @@
 1. [*God's War*](https://books.google.com/books?id=bCapBAAAQBAJ) by Kameron Hurley (2011)
 1. [*Binti*](https://books.google.com/books?id=4jmpCQAAQBAJ) by Nnedi Okorafor (2015)
 1. [*An Unkindness of Ghosts*](https://books.google.com/books?id=oYa4DgAAQBAJ) by Rivers Solomon (2017)
-1. [*Black Helipcopters*](https://books.google.com/books?isbn=1250191122) by Caitlín R. Kiernan (2018)
