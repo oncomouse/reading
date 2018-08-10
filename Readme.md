@@ -2,7 +2,6 @@
 
 ## Currently Reading
 
-1. [*The Outbreak of the Peloponnesian War*](https://books.google.com/books?id=xoYiABG55HkC) by Donald Kagan (1969)
 
 ## Up Next
 
@@ -40,9 +39,13 @@
 1. [*The Archidamian War*](https://books.google.com/books?id=iIApuAEACAAJ) by Donald Kagan (1974)
 1. [*The Peace of Nicias and the Sicilian Expedition*](https://books.google.com/books?id=OEXxtgEACAAJ) by Donald Kagan (1981)
 1. [*The Fall of the Athenian Empire*](https://books.google.com/books?id=DNNCnTmLbPYC) by Donald Kagan (1987)
+1. [*Fire Dance*](https://books.google.com/books/?id=h8BODwAAQBAJ) by Ilana C. Myer (2018)
+1. [*Deep Roots*](https://books.google.com/books?id=_jBbDwAAQBAJ) by Ruthanna Emrys (2018)
 
 ## Read This Year
 
+1. [*Before Mars*](https://books.google.com/books?id=luYtDwAAQBAJ) by Emma Newman (2018)
+1. [*The Outbreak of the Peloponnesian War*](https://books.google.com/books?id=xoYiABG55HkC) by Donald Kagan (1969)
 1. *Taste of Marrow* in [*American Hippo*](https://books.google.com/books/about/American_Hippo.html?id=xJZVDwAAQBAJ) by Sarah Gailey (2017; 2018) 
 1. *We Have Always Lived in the Castle* in [*Novels and Stories*](https://books.google.com/books?id=VXQ7AQAAIAAJ) by Shirley Jackson (1962; 2010)
 1. [*In the All-Night Café*](https://books.google.com/books/about/In_the_All_Night_Caf%C3%A9.html?id=sVcUswEACAAJ) by Stuart David (2016)
