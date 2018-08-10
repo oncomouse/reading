@@ -2,6 +2,8 @@
 
 ## Currently Reading
 
+1. [*The Archidamian War*](https://books.google.com/books?id=iIApuAEACAAJ) by Donald Kagan (1974)
+1. [*Deep Roots*](https://books.google.com/books?id=_jBbDwAAQBAJ) by Ruthanna Emrys (2018)
 
 ## Up Next
 
@@ -36,11 +38,9 @@
 1. [*Sorcerer to the Crown*](https://books.google.com/books?id=C-ZJBgAAQBAJ) by Zen Cho (2015)
 1. [*Before Mars*](https://books.google.com/books?isbn=0399587330) by Emma Newman (2018)
 1. [*Armistice*](https://books.google.com/books?isbn=1250173558) by Lara Elena Donnelly (2018)
-1. [*The Archidamian War*](https://books.google.com/books?id=iIApuAEACAAJ) by Donald Kagan (1974)
 1. [*The Peace of Nicias and the Sicilian Expedition*](https://books.google.com/books?id=OEXxtgEACAAJ) by Donald Kagan (1981)
 1. [*The Fall of the Athenian Empire*](https://books.google.com/books?id=DNNCnTmLbPYC) by Donald Kagan (1987)
 1. [*Fire Dance*](https://books.google.com/books/?id=h8BODwAAQBAJ) by Ilana C. Myer (2018)
-1. [*Deep Roots*](https://books.google.com/books?id=_jBbDwAAQBAJ) by Ruthanna Emrys (2018)
 
 ## Read This Year
 
