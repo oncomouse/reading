@@ -2,6 +2,7 @@
 
 ## Currently Reading
 
+1. [*Record of a Spaceborn Few*](https://books.google.com/books?id=pdI0DwAAQBAJ&hl=en) by Becky Chambers (2018)
 
 ## Up Next
 
