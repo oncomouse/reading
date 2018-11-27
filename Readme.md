@@ -2,7 +2,7 @@
 
 ## Currently Reading
 
-1. [*Record of a Spaceborn Few*](https://books.google.com/books?id=pdI0DwAAQBAJ&hl=en) by Becky Chambers (2018)
+1. [*Ninefox Gambit*](https://books.google.com/books/about/Ninefox_Gambit.html) by Yoon Ha Lee (2016)
 
 ## Up Next
 
@@ -41,12 +41,23 @@
 1. [*The Fall of the Athenian Empire*](https://books.google.com/books?id=DNNCnTmLbPYC) by Donald Kagan (1987)
 1. [*Fire Dance*](https://books.google.com/books/?id=h8BODwAAQBAJ) by Ilana C. Myer (2018)
 1. [*Deep Roots*](https://books.google.com/books?id=_jBbDwAAQBAJ) by Ruthanna Emrys (2018)
+1. [*Record of a Spaceborn Few*](https://books.google.com/books?id=pdI0DwAAQBAJ&hl=en) by Becky Chambers (2018)
+1. [*A Study in Honor*](https://books.google.com/books?isbn=0062699326) by Claire O'Dell (2018)
+1. [*Universal Harvester*](https://books.google.com/books?isbn=0374714029) by John Darnielle (2017)
+1. [*The Descent of Monsters*](https://books.google.com/books?isbn=1250165849) by JY Yang (2018)
+1. [*The Calculating Stars*](https://books.google.com/books?isbn=146686124X) by Mary Robinette Kowal (2018)
+1. [*Noumenon*](https://books.google.com/books?isbn=0062497855) by Marina J. Lostetter (2017)
+1. [*Planetfall*](https://books.google.com/books?isbn=0698404327) by Emma Newman (2015)
+1. [*After Atlas*]://books.google.com/books?isbn=0425282406) by Emma Newman (2016)
+1. [*European Travel for the Monstrous Gentlewoman*](https://books.google.com/books?isbn=1481466550) by Theodora Goss (2018)
 
 ## Read This Year
 
 1. [*Dreadful Company*](https://books.google.com/books/?id=71VOswEACAAJ) by Vivian Shaw (2018)
 1. [*China Rich Girlfriend*](https://books.google.com/books?id=llPCDQAAQBAJ) by Kevin Kwan (2015)
 1. [*Rogue Protocol*](https://books.google.com/books?id=JvAyDwAAQBAJ) by Martha Wells (2018)
+1. [*Wolf in White Van*](https://books.google.com/books?id=uHhzAwAAQBAJ) by John Darnielle (2014)
+1. [*Black Sabbath's Master of Reality*](https://books.google.com/books?isbn=1441104046) by John Darnielle (2008)
 1. [*Red Water Rising*](https://books.google.com/books?id=JWBEDwAAQBAJ) by Laura Ann Gillman (2018)
 1. [*Before Mars*](https://books.google.com/books?id=luYtDwAAQBAJ) by Emma Newman (2018)
 1. [*The Outbreak of the Peloponnesian War*](https://books.google.com/books?id=xoYiABG55HkC) by Donald Kagan (1969)
