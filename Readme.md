@@ -48,7 +48,7 @@
 1. [*The Calculating Stars*](https://books.google.com/books?isbn=146686124X) by Mary Robinette Kowal (2018)
 1. [*Noumenon*](https://books.google.com/books?isbn=0062497855) by Marina J. Lostetter (2017)
 1. [*Planetfall*](https://books.google.com/books?isbn=0698404327) by Emma Newman (2015)
-1. [*After Atlas*]://books.google.com/books?isbn=0425282406) by Emma Newman (2016)
+1. [*After Atlas*](https://books.google.com/books?isbn=0425282406) by Emma Newman (2016)
 1. [*European Travel for the Monstrous Gentlewoman*](https://books.google.com/books?isbn=1481466550) by Theodora Goss (2018)
 
 ## Read This Year
