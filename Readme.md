@@ -2,7 +2,7 @@
 
 ## Currently Reading
 
-1. [*Ninefox Gambit*](https://books.google.com/books/about/Ninefox_Gambit.html) by Yoon Ha Lee (2016)
+1. [*Deep Roots*](https://books.google.com/books?id=_jBbDwAAQBAJ) by Ruthanna Emrys (2018)
 
 ## Up Next
 
@@ -40,7 +40,6 @@
 1. [*The Peace of Nicias and the Sicilian Expedition*](https://books.google.com/books?id=OEXxtgEACAAJ) by Donald Kagan (1981)
 1. [*The Fall of the Athenian Empire*](https://books.google.com/books?id=DNNCnTmLbPYC) by Donald Kagan (1987)
 1. [*Fire Dance*](https://books.google.com/books/?id=h8BODwAAQBAJ) by Ilana C. Myer (2018)
-1. [*Deep Roots*](https://books.google.com/books?id=_jBbDwAAQBAJ) by Ruthanna Emrys (2018)
 1. [*Record of a Spaceborn Few*](https://books.google.com/books?id=pdI0DwAAQBAJ&hl=en) by Becky Chambers (2018)
 1. [*A Study in Honor*](https://books.google.com/books?isbn=0062699326) by Claire O'Dell (2018)
 1. [*Universal Harvester*](https://books.google.com/books?isbn=0374714029) by John Darnielle (2017)
@@ -53,6 +52,7 @@
 
 ## Read This Year
 
+1. [*Ninefox Gambit*](https://books.google.com/books/about/Ninefox_Gambit.html) by Yoon Ha Lee (2016)
 1. [*Dreadful Company*](https://books.google.com/books/?id=71VOswEACAAJ) by Vivian Shaw (2018)
 1. [*China Rich Girlfriend*](https://books.google.com/books?id=llPCDQAAQBAJ) by Kevin Kwan (2015)
 1. [*Rogue Protocol*](https://books.google.com/books?id=JvAyDwAAQBAJ) by Martha Wells (2018)
