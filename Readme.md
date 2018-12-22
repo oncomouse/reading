@@ -23,7 +23,6 @@
 1. [*A Planet for Rent*](https://books.google.com/books?isbn=1632060086) by YOSS (trans. David Frye) (2014)
 1. [*Certain Dark Things*](https://books.google.com/books?isbn=1250099099) by Silvia Moreno-Garcia (2016)
 1. [*The Sunlight Pilgrims*](https://books.google.com/books?isbn=0553418882) by Jenni Fagan (2016)
-1. [*The Only Harmless Great Thing*](https://books.google.com/books?isbn=125016947X) by Brooke Bolander (2018)
 1. [*The Kin of Ata Are Waiting for You*](https://books.google.com/books?id=kIp65gZQM40C) by Dorothy Bryant (1971)
 1. [*Beggars in Spain*](https://books.google.com/books?isbn=0060733489) by Nancy Kress (1993)
 1. [*China Mountain Zhang*](https://books.google.com/books?isbn=1466827130) by Maureen F. McHugh (1992)
