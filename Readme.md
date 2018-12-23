@@ -2,7 +2,7 @@
 
 ## Currently Reading
 
-1. [*Deep Roots*](https://books.google.com/books?id=_jBbDwAAQBAJ) by Ruthanna Emrys (2018)
+1. [*The Black God's Drums*](https://books.google.com/books/about/The_Black_God_s_Drums.html) by P. Djèlí Clark (2018)
 
 ## Up Next
 
@@ -51,6 +51,7 @@
 
 ## Read This Year
 
+1. [*Deep Roots*](https://books.google.com/books?id=_jBbDwAAQBAJ) by Ruthanna Emrys (2018)
 1. [*Ninefox Gambit*](https://books.google.com/books/about/Ninefox_Gambit.html) by Yoon Ha Lee (2016)
 1. [*Dreadful Company*](https://books.google.com/books/?id=71VOswEACAAJ) by Vivian Shaw (2018)
 1. [*China Rich Girlfriend*](https://books.google.com/books?id=llPCDQAAQBAJ) by Kevin Kwan (2015)
