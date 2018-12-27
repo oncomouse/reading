@@ -2,6 +2,7 @@
 
 ## Currently Reading
 
+1. [*A Study in Honor*](https://books.google.com/books?isbn=0062699326) by Claire O'Dell (2018)
 1. [*Fire Dance*](https://books.google.com/books/?id=h8BODwAAQBAJ) by Ilana C. Myer (2018)
 
 ## Up Next
@@ -39,7 +40,6 @@
 1. [*The Peace of Nicias and the Sicilian Expedition*](https://books.google.com/books?id=OEXxtgEACAAJ) by Donald Kagan (1981)
 1. [*The Fall of the Athenian Empire*](https://books.google.com/books?id=DNNCnTmLbPYC) by Donald Kagan (1987)
 1. [*Record of a Spaceborn Few*](https://books.google.com/books?id=pdI0DwAAQBAJ&hl=en) by Becky Chambers (2018)
-1. [*A Study in Honor*](https://books.google.com/books?isbn=0062699326) by Claire O'Dell (2018)
 1. [*Universal Harvester*](https://books.google.com/books?isbn=0374714029) by John Darnielle (2017)
 1. [*The Descent of Monsters*](https://books.google.com/books?isbn=1250165849) by JY Yang (2018)
 1. [*The Calculating Stars*](https://books.google.com/books?isbn=146686124X) by Mary Robinette Kowal (2018)
