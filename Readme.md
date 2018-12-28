@@ -2,7 +2,7 @@
 
 ## Currently Reading
 
-1. [*A Study in Honor*](https://books.google.com/books?isbn=0062699326) by Claire O'Dell (2018)
+1. [*A Study in Scarlet*](https://books.google.com/books?id=BE4pmIwxYnIC) by Arthur Conan Doyle (1887)
 1. [*Fire Dance*](https://books.google.com/books/?id=h8BODwAAQBAJ) by Ilana C. Myer (2018)
 
 ## Up Next
@@ -51,6 +51,7 @@
 
 ## Read This Year
 
+1. [*A Study in Honor*](https://books.google.com/books?isbn=0062699326) by Claire O'Dell (2018)
 1. [*Deep Roots*](https://books.google.com/books?id=_jBbDwAAQBAJ) by Ruthanna Emrys (2018)
 1. [*Ninefox Gambit*](https://books.google.com/books/about/Ninefox_Gambit.html) by Yoon Ha Lee (2016)
 1. [*Dreadful Company*](https://books.google.com/books/?id=71VOswEACAAJ) by Vivian Shaw (2018)
