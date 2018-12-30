@@ -2,7 +2,7 @@
 
 ## Currently Reading
 
-1. [*A Study in Scarlet*](https://books.google.com/books?id=BE4pmIwxYnIC) by Arthur Conan Doyle (1887)
+1. [*The Black God's Drums*](https://books.google.com/books/about/The_Black_God_s_Drums.html) by P. Djèlí Clark (2018)
 1. [*Fire Dance*](https://books.google.com/books/?id=h8BODwAAQBAJ) by Ilana C. Myer (2018)
 
 ## Up Next
@@ -47,10 +47,10 @@
 1. [*Planetfall*](https://books.google.com/books?isbn=0698404327) by Emma Newman (2015)
 1. [*After Atlas*](https://books.google.com/books?isbn=0425282406) by Emma Newman (2016)
 1. [*European Travel for the Monstrous Gentlewoman*](https://books.google.com/books?isbn=1481466550) by Theodora Goss (2018)
-1. [*The Black God's Drums*](https://books.google.com/books/about/The_Black_God_s_Drums.html) by P. Djèlí Clark (2018)
 
 ## Read This Year
 
+1. [*A Study in Scarlet*](https://books.google.com/books?id=BE4pmIwxYnIC) by Arthur Conan Doyle (1887)
 1. [*A Study in Honor*](https://books.google.com/books?isbn=0062699326) by Claire O'Dell (2018)
 1. [*Deep Roots*](https://books.google.com/books?id=_jBbDwAAQBAJ) by Ruthanna Emrys (2018)
 1. [*Ninefox Gambit*](https://books.google.com/books/about/Ninefox_Gambit.html) by Yoon Ha Lee (2016)
