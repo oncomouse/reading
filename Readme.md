@@ -1,8 +1,7 @@
-# Andrew's Reading, 2018
+# Andrew's Reading
 
 ## Currently Reading
 
-1. [*The Black God's Drums*](https://books.google.com/books/about/The_Black_God_s_Drums.html) by P. Djèlí Clark (2018)
 1. [*Fire Dance*](https://books.google.com/books/?id=h8BODwAAQBAJ) by Ilana C. Myer (2018)
 
 ## Up Next
@@ -48,53 +47,5 @@
 1. [*After Atlas*](https://books.google.com/books?isbn=0425282406) by Emma Newman (2016)
 1. [*European Travel for the Monstrous Gentlewoman*](https://books.google.com/books?isbn=1481466550) by Theodora Goss (2018)
 
-## Read This Year
+## Read in 2019
 
-1. [*A Study in Scarlet*](https://books.google.com/books?id=BE4pmIwxYnIC) by Arthur Conan Doyle (1887)
-1. [*A Study in Honor*](https://books.google.com/books?isbn=0062699326) by Claire O'Dell (2018)
-1. [*Deep Roots*](https://books.google.com/books?id=_jBbDwAAQBAJ) by Ruthanna Emrys (2018)
-1. [*Ninefox Gambit*](https://books.google.com/books/about/Ninefox_Gambit.html) by Yoon Ha Lee (2016)
-1. [*Dreadful Company*](https://books.google.com/books/?id=71VOswEACAAJ) by Vivian Shaw (2018)
-1. [*China Rich Girlfriend*](https://books.google.com/books?id=llPCDQAAQBAJ) by Kevin Kwan (2015)
-1. [*Rogue Protocol*](https://books.google.com/books?id=JvAyDwAAQBAJ) by Martha Wells (2018)
-1. [*Wolf in White Van*](https://books.google.com/books?id=uHhzAwAAQBAJ) by John Darnielle (2014)
-1. [*Black Sabbath's Master of Reality*](https://books.google.com/books?isbn=1441104046) by John Darnielle (2008)
-1. [*Red Water Rising*](https://books.google.com/books?id=JWBEDwAAQBAJ) by Laura Ann Gillman (2018)
-1. [*Before Mars*](https://books.google.com/books?id=luYtDwAAQBAJ) by Emma Newman (2018)
-1. [*The Outbreak of the Peloponnesian War*](https://books.google.com/books?id=xoYiABG55HkC) by Donald Kagan (1969)
-1. *Taste of Marrow* in [*American Hippo*](https://books.google.com/books/about/American_Hippo.html?id=xJZVDwAAQBAJ) by Sarah Gailey (2017; 2018) 
-1. *We Have Always Lived in the Castle* in [*Novels and Stories*](https://books.google.com/books?id=VXQ7AQAAIAAJ) by Shirley Jackson (1962; 2010)
-1. [*In the All-Night Café*](https://books.google.com/books/about/In_the_All_Night_Caf%C3%A9.html?id=sVcUswEACAAJ) by Stuart David (2016)
-1. [*Black Helipcopters*](https://books.google.com/books?isbn=1250191122) by Caitlín R. Kiernan (2018)
-1. [*Artificial Condition*](https://books.google.com/books?isbn=1250186935) by Martha Wells (2018)
-1. [*Blackfish City*](https://books.google.com/books?isbn=0062684841) by Sam J. Miller (2018)
-1. [*The Thirty-Nine Steps*](http://www.gutenberg.org/ebooks/558) by John Buchan (1915)
-1. [*Binti: The Night Masquerade*](https://books.google.com/books?id=wAgsDgAAQBAJ) by Nnedi Okorafor (2018)
-1. [*A Closed and Common Orbit*](https://books.google.com/books?id=34ixCwAAQBAJ) by Becky Chambers (2016)
-1. [*Take What You Need and Compost the Rest*](http://tangledwilderness.org/pdfs/takewhatyouneed-web.pdf) by Margaret Killjoy (2013)
-1. [*Space Opera*](https://books.google.com/books?id=DGwvjwEACAAJ) by Catherynne M. Valente (2018)
-1. [*Binti: Home*](https://books.google.com/books?id=RywKDAAAQBAJ) by Nnedi Okorafor (2017)
-1. [*Agents of Dreamland*](https://books.google.com/books?id=76DvvQAACAAJ) by Caitlín R. Kiernan (2017)
-1. [*The Barrow Will Send What It May*](https://books.google.com/books?id=P-wyDwAAQBAJ) by Margaret Killjoy (2018)
-1. [*Amberlough*](https://books.google.com/books/about/Amberlough.html?id=TEzxswEACAAJ) by Lara Elena Donnelly (2018)
-1. [*The Dream-quest of Vellitt Boe*](https://books.google.com/books?isbn=0765386518) by Kij Johnson (2016)
-1. [*Up Against It*](https://books.google.com/books?id=dTtZ4GPU6z0C) by M.J. Locke (2011)
-1. [*The Stars Are Legion*](https://books.google.com/books?isbn=1481447955) by Kameron Hurley (2017)
-1. [*River of Teeth*](https://books.google.com/books?id=5mR9DQAAQBAJ) by Sarah Gailey (2017)
-1. [*All Systems Red*](https://books.google.com/books?isbn=0765397528) by Martha Wells (2017)
-1. [*The Children of Blood and Bone*](https://books.google.com/books?id=vuguDwAAQBAJ) by Tomi Adeyami (2018)
-1. [*The Black Tides of Heaven*](https://books.google.com/books?id=nGR9DQAAQBAJ) by JY Yang (2017)
-1. [*Vermilion*](https://books.google.com/books?isbn=1939905087) by Molly Tanzer (2015)
-1. [*The Cold Eye*](https://books.google.com/books/about/The_Cold_Eye.html?id=i0tODwAAQBAJ) by Laura Anne Gilman (2017)
-1. [*The Lamb Will Slaughter the Lion*](https://books.google.com/books/about/The_Lamb_Will_Slaughter_the_Lion.html?id=QCu2DQAAQBAJ) by Margaret Killjoy (2017)
-1. [*Silver on the Road*](https://books.google.com/books?id=o6OZBgAAQBAJ) by Laura Anne Gilman (2015)
-1. [*The Red Threads of Fortune*](https://books.google.com/books?id=wWR9DQAAQBAJ) by JY Yang (2017)
-1. [*Winter Tide*](https://books.google.com/books?id=Qf4ZDgAAQBAJ) by Ruthanna Emrys (2017)
-1. [*Liquid Intelligence*](https://books.google.com/books?id=yUKAAwAAQBAJ) by Dave Arnold (2014)
-1. [*The Strange Case of the Alchemist's Daughter*](https://books.google.com/books?id=LicvDQAAQBAJ) by Theodora Goss (2017)
-1. [*Strange Practice*](https://books.google.com/books?id=-K9GvgAACAAJ) by Vivian Shaw (2017)
-1. [*The Odyssey*](https://books.google.com/books?id=PpJYDgAAQBAJ) by Homer (trans. Emily Wilson) (2017)
-1. [*The Grace of Kings*](https://books.google.com/books?id=y4veAwAAQBAJ) by Ken Liu (2015)
-1. [*God's War*](https://books.google.com/books?id=bCapBAAAQBAJ) by Kameron Hurley (2011)
-1. [*Binti*](https://books.google.com/books?id=4jmpCQAAQBAJ) by Nnedi Okorafor (2015)
-1. [*An Unkindness of Ghosts*](https://books.google.com/books?id=oYa4DgAAQBAJ) by Rivers Solomon (2017)
