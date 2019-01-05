@@ -2,7 +2,6 @@
 
 ## Currently Reading
 
-1. [*Exit Strategy*](https://books.google.com/books?isbn=1250185467) by Martha Wells (2018)
 1. [*Fire Dance*](https://books.google.com/books/?id=h8BODwAAQBAJ) by Ilana C. Myer (2018)
 
 ## Up Next
@@ -54,3 +53,4 @@
 
 ## Read in 2019
 
+1. [*Exit Strategy*](https://books.google.com/books?isbn=1250185467) by Martha Wells (2018)
