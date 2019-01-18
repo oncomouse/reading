@@ -2,7 +2,7 @@
 
 ## Currently Reading
 
-1. [*Fire Dance*](https://books.google.com/books/?id=h8BODwAAQBAJ) by Ilana C. Myer (2018)
+1. [*Deathless*](https://books.google.com/books?id=usPreJ4IgOsC) by Catherynne M. Valente (2011)
 
 ## Up Next
 
@@ -48,9 +48,10 @@
 1. [*European Travel for the Monstrous Gentlewoman*](https://books.google.com/books?isbn=1481466550) by Theodora Goss (2018)
 1. [*Trail of Lightning*](https://books.google.com/books?isbn=1534413510) by Rebecca Roanhorse (2018)
 1. [*Terra Nullius*](https://books.google.com/books?isbn=1618731521) by Claire G. Coleman (2018)
-1. [*Melmoth*](https://books.google.com/books?isbn=0062856413) by Sarah Perry (2018)
 1. [*Jade City*](https://books.google.com/books?isbn=0316440892) by Fonda Lee (2017)
+1. [*Fire Dance*](https://books.google.com/books/?id=h8BODwAAQBAJ) by Ilana C. Myer (2018)
 
 ## Read in 2019
 
+1. [*Melmoth*](https://books.google.com/books?isbn=0062856413) by Sarah Perry (2018)
 1. [*Exit Strategy*](https://books.google.com/books?isbn=1250185467) by Martha Wells (2018)
