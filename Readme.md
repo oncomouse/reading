@@ -50,6 +50,7 @@
 1. [*Terra Nullius*](https://books.google.com/books?isbn=1618731521) by Claire G. Coleman (2018)
 1. [*Jade City*](https://books.google.com/books?isbn=0316440892) by Fonda Lee (2017)
 1. [*Fire Dance*](https://books.google.com/books/?id=h8BODwAAQBAJ) by Ilana C. Myer (2018)
+1. [*Essex Serpent*](https://books.google.com/books?id=9T0YDQAAQBAJ) by Sarah Perry (2017)
 
 ## Read in 2019
 
