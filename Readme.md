@@ -39,7 +39,6 @@
 1. [*The Peace of Nicias and the Sicilian Expedition*](https://books.google.com/books?id=OEXxtgEACAAJ) by Donald Kagan (1981)
 1. [*The Fall of the Athenian Empire*](https://books.google.com/books?id=DNNCnTmLbPYC) by Donald Kagan (1987)
 1. [*Record of a Spaceborn Few*](https://books.google.com/books?id=pdI0DwAAQBAJ&hl=en) by Becky Chambers (2018)
-1. [*Universal Harvester*](https://books.google.com/books?isbn=0374714029) by John Darnielle (2017)
 1. [*The Descent of Monsters*](https://books.google.com/books?isbn=1250165849) by JY Yang (2018)
 1. [*The Calculating Stars*](https://books.google.com/books?isbn=146686124X) by Mary Robinette Kowal (2018)
 1. [*Noumenon*](https://books.google.com/books?isbn=0062497855) by Marina J. Lostetter (2017)
@@ -50,8 +49,10 @@
 1. [*Terra Nullius*](https://books.google.com/books?isbn=1618731521) by Claire G. Coleman (2018)
 1. [*Jade City*](https://books.google.com/books?isbn=0316440892) by Fonda Lee (2017)
 1. [*Fire Dance*](https://books.google.com/books/?id=h8BODwAAQBAJ) by Ilana C. Myer (2018)
+1. [*The Essex Serpent*](https://books.google.com/books?id=9T0YDQAAQBAJ) by Sarah Perry (2017)
 
 ## Read in 2019
 
 1. [*Melmoth*](https://books.google.com/books?isbn=0062856413) by Sarah Perry (2018)
 1. [*Exit Strategy*](https://books.google.com/books?isbn=1250185467) by Martha Wells (2018)
+1. [*Universal Harvester*](https://books.google.com/books?isbn=0374714029) by John Darnielle (2017)
