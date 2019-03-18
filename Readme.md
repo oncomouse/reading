@@ -2,7 +2,7 @@
 
 ## Currently Reading
 
-1. [*Deathless*](https://books.google.com/books?id=usPreJ4IgOsC) by Catherynne M. Valente (2011)
+1. [*Beggars in Spain*](https://books.google.com/books?isbn=0060733489) by Nancy Kress (1993)
 
 ## Up Next
 
@@ -24,7 +24,6 @@
 1. [*Certain Dark Things*](https://books.google.com/books?isbn=1250099099) by Silvia Moreno-Garcia (2016)
 1. [*The Sunlight Pilgrims*](https://books.google.com/books?isbn=0553418882) by Jenni Fagan (2016)
 1. [*The Kin of Ata Are Waiting for You*](https://books.google.com/books?id=kIp65gZQM40C) by Dorothy Bryant (1971)
-1. [*Beggars in Spain*](https://books.google.com/books?isbn=0060733489) by Nancy Kress (1993)
 1. [*China Mountain Zhang*](https://books.google.com/books?isbn=1466827130) by Maureen F. McHugh (1992)
 1. [*Creatures of Will and Temper*](https://books.google.com/books?id=uC62DQAAQBAJ) by Molly Tanzer (2017)
 1. [*Too Like the Lightning*](https://books.google.com/books?id=RuWUCgAAQBAJ) by Ada Palmer (2016)
@@ -50,9 +49,12 @@
 1. [*Jade City*](https://books.google.com/books?isbn=0316440892) by Fonda Lee (2017)
 1. [*Fire Dance*](https://books.google.com/books/?id=h8BODwAAQBAJ) by Ilana C. Myer (2018)
 1. [*The Essex Serpent*](https://books.google.com/books?id=9T0YDQAAQBAJ) by Sarah Perry (2017)
+1. [*Deathless*](https://books.google.com/books?id=usPreJ4IgOsC) by Catherynne M. Valente (2011)
 
 ## Read in 2019
 
+1. [*Bad Blood: Secrets and Lies in a Silicon Valley Startup*](https://books.google.com/books?isbn=1524731668) (2018)
+1. [*The Raven Tower*](https://books.google.com/books?isbn=0316388718) (2019)
 1. [*Melmoth*](https://books.google.com/books?isbn=0062856413) by Sarah Perry (2018)
 1. [*Exit Strategy*](https://books.google.com/books?isbn=1250185467) by Martha Wells (2018)
 1. [*Universal Harvester*](https://books.google.com/books?isbn=0374714029) by John Darnielle (2017)
