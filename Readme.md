@@ -44,7 +44,6 @@
 1. [*Planetfall*](https://books.google.com/books?isbn=0698404327) by Emma Newman (2015)
 1. [*After Atlas*](https://books.google.com/books?isbn=0425282406) by Emma Newman (2016)
 1. [*European Travel for the Monstrous Gentlewoman*](https://books.google.com/books?isbn=1481466550) by Theodora Goss (2018)
-1. [*Trail of Lightning*](https://books.google.com/books?isbn=1534413510) by Rebecca Roanhorse (2018)
 1. [*Terra Nullius*](https://books.google.com/books?isbn=1618731521) by Claire G. Coleman (2018)
 1. [*Jade City*](https://books.google.com/books?isbn=0316440892) by Fonda Lee (2017)
 1. [*Fire Dance*](https://books.google.com/books/?id=h8BODwAAQBAJ) by Ilana C. Myer (2018)
@@ -53,6 +52,7 @@
 
 ## Read in 2019
 
+1. [*Trail of Lightning*](https://books.google.com/books?isbn=1534413510) by Rebecca Roanhorse (2018)
 1. [*Bad Blood: Secrets and Lies in a Silicon Valley Startup*](https://books.google.com/books?isbn=1524731668) (2018)
 1. [*The Raven Tower*](https://books.google.com/books?isbn=0316388718) (2019)
 1. [*Melmoth*](https://books.google.com/books?isbn=0062856413) by Sarah Perry (2018)
