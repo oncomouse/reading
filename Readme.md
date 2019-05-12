@@ -59,7 +59,7 @@
 1. [*Raven Strategem*](https://books.google.com/books/about/Raven_Stratagem.html?id=1ZExvgAACAAJ) by Yoon Ha Lee (2017)
 1. [*Trail of Lightning*](https://books.google.com/books?isbn=1534413510) by Rebecca Roanhorse (2018)
 1. [*Bad Blood: Secrets and Lies in a Silicon Valley Startup*](https://books.google.com/books?isbn=1524731668) (2018)
-1. [*The Raven Tower*](https://books.google.com/books?isbn=0316388718) (2019)
+1. [*The Raven Tower*](https://books.google.com/books?isbn=0316388718) by Ann Leckie (2019)
 1. [*Melmoth*](https://books.google.com/books?isbn=0062856413) by Sarah Perry (2018)
 1. [*Exit Strategy*](https://books.google.com/books?isbn=1250185467) by Martha Wells (2018)
 1. [*Universal Harvester*](https://books.google.com/books?isbn=0374714029) by John Darnielle (2017)
