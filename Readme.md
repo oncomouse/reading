@@ -2,10 +2,11 @@
 
 ## Currently Reading
 
-1. [*Beggars in Spain*](https://books.google.com/books?isbn=0060733489) by Nancy Kress (1993)
+1. [*The Luminous Dead*](https://books.google.com/books/about/The_Luminous_Dead.html?id=GzBkDwAAQBAJ) by Caitlin Starling (2019)
 
 ## Up Next
 
+1. [*Beggars in Spain*](https://books.google.com/books?isbn=0060733489) by Nancy Kress (1993)
 1. [*The Mirror Empire*](https://books.google.com/books?id=Tls8CgAAQBAJ) by Kameron Hurley (2014)
 1. [*A Wrinkle in Time*](https://books.google.com/books?id=r119-dYq0mwC) by Madeline L'Engle (1962)
 1. [*The Complete Hainish Novels & Stories*](https://www.loa.org/books/554-the-hainish-novels-stories-boxed-set) by Ursula K. Le Guin (2017)
@@ -49,9 +50,13 @@
 1. [*Fire Dance*](https://books.google.com/books/?id=h8BODwAAQBAJ) by Ilana C. Myer (2018)
 1. [*The Essex Serpent*](https://books.google.com/books?id=9T0YDQAAQBAJ) by Sarah Perry (2017)
 1. [*Deathless*](https://books.google.com/books?id=usPreJ4IgOsC) by Catherynne M. Valente (2011)
+1. [*The Light Brigade*](https://books.google.com/books/about/The_Light_Brigade.html?id=2eaKDwAAQBAJ) by Kameron Hurley (2019)
+1. [*At the Table of Wolves*](https://books.google.com/books/about/At_the_Table_of_Wolves.html?id=tdBMDQAAQBAJ) by Kay Kenyon (2017)
 
 ## Read in 2019
 
+1. [*Revenant Gun*](https://books.google.com/books?id=N2dNDwAAQBAJ) by Yoon Ha Lee (2018)
+1. [*Raven Strategem*](https://books.google.com/books/about/Raven_Stratagem.html?id=1ZExvgAACAAJ) by Yoon Ha Lee (2017)
 1. [*Trail of Lightning*](https://books.google.com/books?isbn=1534413510) by Rebecca Roanhorse (2018)
 1. [*Bad Blood: Secrets and Lies in a Silicon Valley Startup*](https://books.google.com/books?isbn=1524731668) (2018)
 1. [*The Raven Tower*](https://books.google.com/books?isbn=0316388718) (2019)
