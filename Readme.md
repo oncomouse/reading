@@ -2,7 +2,7 @@
 
 ## Currently Reading
 
-1. [*The Luminous Dead*](https://books.google.com/books/about/The_Luminous_Dead.html?id=GzBkDwAAQBAJ) by Caitlin Starling (2019)
+1. [*Circe*](https://books.google.com/books/about/Circe_eBook_Axis_360.html?id=LCyWtQEACAAJ) by Madeline Miller (2018)
 
 ## Up Next
 
@@ -55,7 +55,10 @@
 
 ## Read in 2019
 
+1. [*At the Table of Wolves*](https://books.google.com/books/about/At_the_Table_of_Wolves.html?id=tdBMDQAAQBAJ) by Kay Kenyon (2017)
+1. [*The Luminous Dead*](https://books.google.com/books/about/The_Luminous_Dead.html?id=GzBkDwAAQBAJ) by Caitlin Starling (2019)
 1. [*Revenant Gun*](https://books.google.com/books?id=N2dNDwAAQBAJ) by Yoon Ha Lee (2018)
+1. [*Tiger Writing*](https://books.google.com/books/about/Tiger_Writing.html?id=5YyBXx92Ki0C) by Gish Jen (2013)
 1. [*Raven Strategem*](https://books.google.com/books/about/Raven_Stratagem.html?id=1ZExvgAACAAJ) by Yoon Ha Lee (2017)
 1. [*Trail of Lightning*](https://books.google.com/books?isbn=1534413510) by Rebecca Roanhorse (2018)
 1. [*Bad Blood: Secrets and Lies in a Silicon Valley Startup*](https://books.google.com/books?isbn=1524731668) (2018)
