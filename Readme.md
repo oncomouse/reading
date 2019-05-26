@@ -51,7 +51,6 @@
 1. [*The Essex Serpent*](https://books.google.com/books?id=9T0YDQAAQBAJ) by Sarah Perry (2017)
 1. [*Deathless*](https://books.google.com/books?id=usPreJ4IgOsC) by Catherynne M. Valente (2011)
 1. [*The Light Brigade*](https://books.google.com/books/about/The_Light_Brigade.html?id=2eaKDwAAQBAJ) by Kameron Hurley (2019)
-1. [*At the Table of Wolves*](https://books.google.com/books/about/At_the_Table_of_Wolves.html?id=tdBMDQAAQBAJ) by Kay Kenyon (2017)
 
 ## Read in 2019
 
