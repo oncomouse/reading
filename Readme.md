@@ -2,8 +2,6 @@
 
 ## Currently Reading
 
-1. [*Circe*](https://books.google.com/books/about/Circe_eBook_Axis_360.html?id=LCyWtQEACAAJ) by Madeline Miller (2018)
-
 ## Up Next
 
 1. [*Beggars in Spain*](https://books.google.com/books?isbn=0060733489) by Nancy Kress (1993)
@@ -54,6 +52,9 @@
 
 ## Read in 2019
 
+1. *The Murder of Roger Ackroyd* by Agatha Christie (1926)
+1. [*The Calculating Stars*](https://books.google.com/books/about/The_Calculating_Stars.html?id=jvoyDwAAQBAJ) by Mary Robinette Kowal (2018)
+1. [*Circe*](https://books.google.com/books/about/Circe_eBook_Axis_360.html?id=LCyWtQEACAAJ) by Madeline Miller (2018)
 1. [*At the Table of Wolves*](https://books.google.com/books/about/At_the_Table_of_Wolves.html?id=tdBMDQAAQBAJ) by Kay Kenyon (2017)
 1. [*The Luminous Dead*](https://books.google.com/books/about/The_Luminous_Dead.html?id=GzBkDwAAQBAJ) by Caitlin Starling (2019)
 1. [*Revenant Gun*](https://books.google.com/books?id=N2dNDwAAQBAJ) by Yoon Ha Lee (2018)
