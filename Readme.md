@@ -2,8 +2,6 @@
 
 ## Currently Reading
 
-1. [*Seafire*](https://books.google.com/books?id=WtpmDwAAQBAJ) by Natalie C. Parker (2018)
-
 ## Up Next
 
 1. [*Beggars in Spain*](https://books.google.com/books?isbn=0060733489) by Nancy Kress (1993)
@@ -54,6 +52,8 @@
 
 ## Read in 2019
 
+1. [*Storm of Locusts*](https://books.google.com/books/about/Storm_of_Locusts.html?id=XD1qDwAAQBAJ&source=kp_book_description) by Rebecca Roanhorse (2019)
+1. [*Seafire*](https://books.google.com/books?id=WtpmDwAAQBAJ) by Natalie C. Parker (2018)
 1. [*The Murder of Roger Ackroyd*](https://books.google.com/books?id=jLUPkkcWpjQC) by Agatha Christie (1926)
 1. [*The Calculating Stars*](https://books.google.com/books/about/The_Calculating_Stars.html?id=jvoyDwAAQBAJ) by Mary Robinette Kowal (2018)
 1. [*Circe*](https://books.google.com/books/about/Circe_eBook_Axis_360.html?id=LCyWtQEACAAJ) by Madeline Miller (2018)
