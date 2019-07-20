@@ -2,6 +2,8 @@
 
 ## Currently Reading
 
+1. [*Serpent in the Heather*](https://books.google.com/books/about/Serpent_in_the_Heather.html?id=UfUxDwAAQBAJ&source=kp_book_description) by Kay Kenyon (2018)
+
 ## Up Next
 
 1. [*Beggars in Spain*](https://books.google.com/books?isbn=0060733489) by Nancy Kress (1993)
