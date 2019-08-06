@@ -2,7 +2,6 @@
 
 ## Currently Reading
 
-1. [*Serpent in the Heather*](https://books.google.com/books/about/Serpent_in_the_Heather.html?id=UfUxDwAAQBAJ&source=kp_book_description) by Kay Kenyon (2018)
 
 ## Up Next
 
@@ -54,6 +53,9 @@
 
 ## Read in 2019
 
+1. [*The Affair of the Mysterious Letter*](https://books.google.com/books/about/The_Affair_of_the_Mysterious_Letter.html?id=SuVvDwAAQBAJ&source=kp_book_description) by Alexis Hall (2019)
+1. [*And Then There Were None*](https://books.google.com/books?isbn=0312979479) by Agatha Christie (1939)
+1. [*Serpent in the Heather*](https://books.google.com/books/about/Serpent_in_the_Heather.html?id=UfUxDwAAQBAJ&source=kp_book_description) by Kay Kenyon (2018)
 1. [*Storm of Locusts*](https://books.google.com/books/about/Storm_of_Locusts.html?id=XD1qDwAAQBAJ&source=kp_book_description) by Rebecca Roanhorse (2019)
 1. [*Seafire*](https://books.google.com/books?id=WtpmDwAAQBAJ) by Natalie C. Parker (2018)
 1. [*The Murder of Roger Ackroyd*](https://books.google.com/books?id=jLUPkkcWpjQC) by Agatha Christie (1926)
