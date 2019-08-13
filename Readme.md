@@ -53,6 +53,8 @@
 
 ## Read in 2019
 
+1. [*Finder*](https://books.google.com/books/about/Finder.html?id=3LNiDwAAQBAJ&source=kp_book_description) by Suzanne Palmer (2019)
+1. [*Game Angry*](https://theangrygm.com/game-angry-book-launch/) by Scott Rehm (2018)
 1. [*The Affair of the Mysterious Letter*](https://books.google.com/books/about/The_Affair_of_the_Mysterious_Letter.html?id=SuVvDwAAQBAJ&source=kp_book_description) by Alexis Hall (2019)
 1. [*And Then There Were None*](https://books.google.com/books?isbn=0312979479) by Agatha Christie (1939)
 1. [*Serpent in the Heather*](https://books.google.com/books/about/Serpent_in_the_Heather.html?id=UfUxDwAAQBAJ&source=kp_book_description) by Kay Kenyon (2018)
