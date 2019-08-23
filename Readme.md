@@ -2,6 +2,7 @@
 
 ## Currently Reading
 
+1. [*The Gilded Wolves*](https://books.google.com/books?id=OxFaDwAAQBAJ) by Roshani Chokshi (2019)
 
 ## Up Next
 
@@ -53,6 +54,7 @@
 
 ## Read in 2019
 
+1. [*Nest of the Monarch*](https://books.google.com/books/about/Nest_of_the_Monarch.html?id=Zb2NDwAAQBAJ) by Kay Kenyon (2019)
 1. [*Finder*](https://books.google.com/books/about/Finder.html?id=3LNiDwAAQBAJ&source=kp_book_description) by Suzanne Palmer (2019)
 1. [*Game Angry*](https://theangrygm.com/game-angry-book-launch/) by Scott Rehm (2018)
 1. [*The Affair of the Mysterious Letter*](https://books.google.com/books/about/The_Affair_of_the_Mysterious_Letter.html?id=SuVvDwAAQBAJ&source=kp_book_description) by Alexis Hall (2019)
